@@ -11,12 +11,11 @@ thats the best joke eva
 beacause it was TWO-TIRED 
 gEt ItTTT TOO TIRED BUT TWOOOO
 
-3)What kind of pants do clouds wear?
-
+3) What kind of pants do clouds wear?
 THUNDERWEARRRRR
 
 4) Do you live at Bedok?
 Cuz you make my heat *BEDOK BEDOK*
 
 
-HoPE YoU EnJoYeD iTt AnD lOvEdDdDdDDDd iT!!!
+HoPE YoU EnJoYeD iTt AnD lOvEdDdDdDDDd iTTTT!!!
